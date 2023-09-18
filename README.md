@@ -1,6 +1,6 @@
-### ola bem vindo ao meu perfil 😄 
+### ola bem vindo ao meu perfil 😄 trabalho na minha empresa desentupidora araruna 
 
-
+👷
 <!--
 **Gabrielhdecastro/GABRIELHDECASTRO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
